@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @1k2a3n4a5k
 - 👀 I’m interested in hacking instagram I'd 
 - 🌱 I’m currently study in 9th class
-- 💞️ I’m looking to someone teach me how to hack inside I'd 
+- 💞️ I’m looking to someone teach me how to hack instagram I'd 
 - 👩‍🎓 I also want to learn coding 
      I want to become engineer 
 - ⚡ My favorite things is watching anime
